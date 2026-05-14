@@ -1,4 +1,4 @@
-# 
+# Get the ultimate binance futures bot with high-frequency binance futures bot Addon | take-profit + position-sizing. Featuring take-profit and position-sizing, it's the best choice
 
 
 
